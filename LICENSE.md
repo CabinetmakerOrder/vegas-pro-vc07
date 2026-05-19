@@ -1,4 +1,4 @@
-# 
+# Melhor Adobe Premiere Pro para PC ferramentas é o melhor Adobe Premiere Pro para PC ferramentas com scripts e remapeamento de tempo. Seguro, confiável e otimizado para máximo
 
 
 
